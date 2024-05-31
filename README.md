@@ -1,1 +1,1 @@
-https://To view my work click "itsmedivyhere.github.io/Protfolio-Divy/"
+To view my work pls click "https://"itsmedivyhere.github.io/Protfolio-Divy/"
